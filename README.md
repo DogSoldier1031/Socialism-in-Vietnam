@@ -8,3 +8,7 @@ https://www.marxists.org/reference/archive/ho-chi-minh/index.htm
 
 Political Theory
 http://lyluanchinhtri.vn/home/en/index.php/home.html
+
+https://www.tapchicongsan.org.vn
+
+http://m.tapchiqptd.vn/default.aspx
